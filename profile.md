@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @bad-scripter
+- I'm a horrible scripter :D
+- Currently learning ...nothing
